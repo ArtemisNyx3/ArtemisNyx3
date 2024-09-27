@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm learning to Crochet 🧶
 
+![](https://komarev.com/ghpvc/?username=ArtemisNyx3&color=FF007F&abbreviated=true&style=for-the-badge)
